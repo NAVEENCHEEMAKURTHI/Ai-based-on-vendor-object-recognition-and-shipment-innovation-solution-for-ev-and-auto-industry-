@@ -1,0 +1,1 @@
+# Ai-based-on-vendor-object-recognition-and-shipment-innovation-solution-for-ev-and-auto-industry-
